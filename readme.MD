@@ -554,6 +554,408 @@ D.	Joko Widodo
 
 
 
+1.	Penerapan Pancasila yang penting pada masa pemerintahan Presiden Megawati adalah pembentukan Komisi Pemberantasan Korupsi (KPK) tahun ….
+
+A.	2003
+
+B.	2004
+
+C.	2005
+
+D.	2006<
+
+
+
+2.	Dalam hal pembangunan, masa pemerintahan ini  Susilo Bambang Yudhoyono ditandai dengan pengubahan rencana pembangunan dari Garis-garis Besar Haluan Negara (GBHN) menjadi Rencana Pembangunan Jangka Panjang (RPJP). Pemerintahan SBY pun menyusun RPJP 2005–2025 yang mencakup  masa pembangunan....
+
+A.	20 tahun <
+
+B.	25 tahun
+
+C.	10 tahun
+
+D.	5 tahun
+
+
+
+3.	Terkait Pancasila sebagai ideologi bangsa, di masa pemerintahan Susilo Bambang Yudhoyono, MPR mengenalkan Empat Pilar Berbangsa dan Bernegara. Keempatnya tersebut adalah, kecuali ....
+
+A.	Pancasila, 
+
+B.	Undang-undang Dasar 1945, 
+
+C.	NKRI,
+
+D.	GBHN.<
+
+
+
+4.  Seorang pengusaha yang berhasil menjadi kepala daerah, yaitu sebagai Walikota  Surakarta  dan  kemudian  Gubernur DKI Jakarta.  Dalam  Pilpres  2014,   terpilih  sebagai  Presiden dan kemudian berulang lagi sampai Pilpres 2019. Siapakah tokoh tersebut ?
+
+	A. BJ. Habibie
+
+	B. SBY
+
+	C. Prabowo
+
+	D. Joko Widodo<
+
+
+
+5. Dalam Pemerintahan Presiden Joko Widodo dikenal dengan kesungguhannya membangun infrastruktur terutama untuk transportasi.Pembangunan jalan tol bukan hanya di Jawa, namun juga di Sumatera, Kalimantan, serta Sulawesi. Di Jakarta Presiden Joko Widodo membangun kereta cepat bawah tanah yang disebut ....
+
+A. MRT<
+
+B. LRT
+
+C. KRL
+
+D. KLR
+
+
+
+
+
+6.  Meskipun Indonesia telah mencapai banyak kemajuan, namun tantangan penerapan Pancasila dalam kehidupan bernegara masih sangat besar. Berikut yang bukan tantangan Pemerintah dalam menerapkan Pancasila dalam kehidupan bernegara adalah ....
+
+A. Penegakan hukum, 
+
+B. Memajukan ekonomi Pancasila
+
+C. Menerapkan Demokrasi Pancasila
+
+D. Bekerja sama dengan bangsa lain<
+
+
+
+7. Di masa Reformasi, pelaksanaan demokrasi berkembang dengan pesat dengan kebebasan untuk berpendapat dan berserikat yang ditandai dengan pemilihan umum, pemilihan kepada daerah, serta pemilihan Presiden. Meskipun demikian, pelaksanaan demokrasi Indonesia dipandang baru berada di tahap demokrasi formal, belum sampai ke tahap demokrasi substansial. Maka dari itu Indonesia perlu mengembangkan praktik demokrasi sepenuhnya sebagai perwujudan Demokrasi Pancasila. Untuk itu, demokrasi di Indonesia perlu dibebaskan dari praktik ....
+
+A.  Politik Luar Negeri<
+
+B.  Politik Uang
+
+C.  Patrai Politik uang’
+
+D. Politik Praktis
+
+
+
+8. Untuk mewujudkan kehidupan masyarakat yang adil dan makmur, kunci utamanya adalah ...
+
+A. Penegakkan pemerataan pembangunan
+
+B. Penegakkan  hukum<
+
+C. Penegakkan  perekonomian masyarakat
+
+D. Penegakkan   Pemerintahan
+
+
+
+9. Salah satu hal penting dalam penegakan hukum adalah pemberantasan praktik korupsi. Praktik korupsi bertolak belakang dengan nilai sila pertama Pancasila menyangkut kejujuran, serta menjadi penghambat terwujudnya sila kelima berupa keadilan sosial atau kesejahteraan warga, berbagai kalangan pemerintahan masih  sangat banyak melakukan praktik korupsi walaupun ada lembaga pemberantasan  korupsi yaitu ....
+
+A. KPK<
+
+B. KPU
+
+C. PKK
+
+D. KPD 
+
+
+
+10.  Secara ekonomi, negara Indonesia termasuk dalam kelas menengah bila diukur dari rata-rata tingkat penghasilan masyarakat. Tingkat pertumbuhan ekonomi juga cukup baik, dengan berada di sekitar 5 persen per tahun sebelum masa pandemi Covid-19. Indonesia juga masuk anggota 20 negara dengan kekuatan ekonomi terbesar di dunia. anggota 20 negara dengan kekuatan ekonomi terbesar di dunia, biasa di singkat ....
+
+	A. G-20<
+
+	B. G-30
+
+	C. G-40
+
+	D. G-50
+
+
+
+11. Sebagai anggota masyarakat warga Indonesia  perlu terus meningkatkan kualitas penerapan nilai-nilai Panca- sila dalam kehidupan sehari-hari di lingkungan masing-masing. Hanya dengan terus meningkatkan penerapan nilai- nilai Pancasila tersebut, berbagai tantangan yang menghadang dapat …
+
+A. Diatasi.<
+
+B. Dihindari
+
+C. Dijauhi
+
+D. Diperbaiki
+
+
+
+
+
+
+
+
+
+12. Bacalah ulasan ini
+
+   “… Tantangan penerapan Pancasila untuk masa mendatang bukan hanya dihadapi pemerintah, namun juga oleh setiap warga negara. Tantangan tersebut baik dalam dalam keterkaitannya dengan kehidupan sehari-hari di Indonesia, maupun juga dalam kaitannya dengan perkembangan masyarakat dunia maupun global. Kecenderungan radikalisme di masyarakat masih terjadi termasuk yang terpicu oleh faktor kemiskinan, ketidakadilan, serta ketimpangan ekonomi. Begitu juga kecenderungan intoleransi terhadap kelompok masyarakat yang  berbeda, baik suku, agama, maupun juga perbedaan status sosial. Radikalisme serta intoleransi tersebut menjadi hambatan bagi Indonesia untuk dapat melangkah lebih maju...”
+
+  Dari ulasan tersebut yang menjadi hambatan bangsa Indonesia untuk maju adalah ....
+
+A.	Kemiskinan dan kebodohan
+
+B.	Radikalisme dan intoleransi<
+
+C.	Ketidakadilan
+
+D.	Ketimpangan ekonomi
+
+
+
+13. Table penerapan nilai Pancasila 
+
+I	II	III	III
+
+Meningkatkan kualitas ibadah, 
+
+Menjaga sopan santun, 
+
+Meningkatkan kwualitas diri sendiri
+
+ Mementingkan bekerja sama,
+
+Berperilaku semampunya 
+
+	Meningkatkan kualitas ibadah, 
+
+Menjaga sopan santun, 
+
+Meningkatkan rasa cinta bangsa,
+
+ Mementingkan bekerja sama, 
+
+Berperilaku adil	Meningkatkan kualitas ibadah, 
+
+Menjaga sopan santun, 
+
+Meningkatkan rasa cinta bangsa,
+
+ Mementingkan keluarga  
+
+Berperilaku adil	Meningkatkan kualitas ibadah, 
+
+Menjaga sopan santun, 
+
+Meningkatkan rasa cinta bangsa,
+
+ Mementingkan kepentingan pemerintah
+
+Berperilaku adil
+
+Dari table berikut yang menunjukkan contoh nyata  penerapan nilai Pancasila di tunjukan pada table …
+
+A.	I
+
+B.	II<
+
+C.	III
+
+D.	IV
+
+
+
+14. Warga Indonesia perlu menyiapkan diri untuk menjadi warga global. Untuk itu, perlu meningkatkan kemampuan dalam kecakapan atau kompetensi sebagai warga global seperti kemampuan berkomunikasi serta presentasi dalam bahasa ….
+
+A. Daerah
+
+B. Indonesia
+
+C. Asing <
+
+D. Mandarin
+
+
+
+15.  Kemajuan teknologi informasi serta perkembangan transportasi membuat hubungan antar bangsa semakin dekat. Hubungan suatu negara dengan negara-negara lain, hubungan suatu bangsa dengan bangsa-bangsa lainnya, semakin rapat dan bahkan juga semakin saling bergantung. Zaman ini  disebut sebagai ….
+
+A. Era industri 2.0
+
+B. Era industri 3.0
+
+C. Era industri 4.0<
+
+D. Era industri 5.0
+
+
+
+16. Upaya penyelesaian masalah Indonesia Belanda menuai hasil melaui perundingan Linggarjati, sayangnya Belanda mengkhianati perundingan tersebut dengan melakukan agresi militer pertama pada tanggal ….
+
+A.	21 Juni 1947
+
+B.	21 Juli 1945
+
+C.	21 Juli 1949
+
+D.	21 Juli 1947<
+
+
+
+17.	Konfrensi Meja Bundar merupakan perundingan terakhir yang membuat Belanda mengakui Indonesia Merdeka, namun perundingan itu memiliki dampak pelaksanaan Pancasila sebagai pondasi negara Indoneisa. Indonesia dipaksa untuk mengubanh bentuk negara kesatuan menjadi negara …
+
+A.	Republik
+
+B.	Parlementer
+
+C.	Serikat<
+
+D.	Kerajaan
+
+
+
+18.	Pemberontakan besar di Indonesia yang bertujuan ingin menggantikan dasar Negara Pancasila dengan dasar negara lain yang terjadi pada Tahun 1948 dan puncaknya pada tahun 1965 adalah pemberontakan ….
+
+A.	PRRI
+
+B.	DI/TII
+
+C.	PKI<
+
+D.	RMS
+
+
+
+19.	Pemberontakan yang ingin mendirikan negara sendiri karena rasa kecewa dari kalangan islam dan dilakukan di beberapa daerah seperti Jawa Tengan, Jawa Barat , Aceh, Sulawesi Selatan Kalimantan Selatan dipimpin oleh …
+
+A.	Muso
+
+B.	Kartosuwiryo<
+
+C.	Soumokill
+
+D.	Untung
+
+
+
+20.	PRRI dan Permesta merupakan pemberontakan diakibatkan kekecewaan beberapa pihak terhadap pemerintahan Sukarno yang dianggap kurang memperhatikan daerah. Namun pemberontakan tersebut dapat ditupas melalui operasi ….
+
+A.	Sapu jagat
+
+B.	Gerilya
+
+C.	Militer<
+
+D.	Semut
+
+
+
+21.	Untuk mengisi kemerdekaan pemerintah pertama kali melaksanakan pemilihan umum pada tahun 1955, untuk memilih anggota Dewan Konstituante dan anggota DPR. Pemilihan umum tahun 1955 itu dilaksanakan sebagai bentuk penafsiran dari sila ….
+
+A.	Ketiga
+
+B.	Keempat<
+
+C.	Kelima
+
+D.	Kesatuan
+
+
+
+22.	Menyatukan seluruh masyarakat Indonesia yang beragam dan menghadapi ancaman – ancaman terhadap kemerdekaan , merupakan tantangan yang harus dihadapi pada masa pemerintahan Presiden ...
+
+A.	Sukarno
+
+B.	Suharto<
+
+C.	BJ Habibie
+
+D.	Susilo Bambang Yudhoyono
+
+
+
+23.	Tokoh yang memiliki peran besar dalam dalam perjuangan bangsa Indonesia dalam melepaskan diri dari penjajahan dan mendapat julukan Dwi Tunggal adalah ...
+
+A.	Sutomo Hatta
+
+B.	Sukarno Hatta<
+
+C.	Sukarno Suharto
+
+D.	Suharto Hatta
+
+
+
+
+
+
+
+
+
+
+
+
+
+24.	Maklumat yang menekankan bahwa penerapan demokrasi berdasarkan Pancasila di Indonesia perlu menggunakan banyak partai ( multi Partai ) merupakan pandangan berdasarkan maklumat yang dikeluarkan oleh ….
+
+A.	Sukarno
+
+B.	Supomo
+
+C.	M. Hatta<
+
+D.	M Yamin
+
+
+
+25.	Belanda berusaha menguasai kembali Indonesia secara de facto , karena Belanda mengganggap Indonesia masih merupakan wilayah jajahan Belanda secara ...
+
+A.	De Facto
+
+B.	Deklarasi
+
+C.	Demokrasi
+
+D.	De jure<
+
+
+
+
+
+
+
+
+
+ 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
